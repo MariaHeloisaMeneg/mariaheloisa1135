@@ -1,1 +1,3 @@
-# mariaheloisa1135
+# Oie, sou a Maria
+*Estudante do curso Alura*
+_🐾👱🏻‍♀️_
